@@ -2,13 +2,13 @@
 ㅤ
 ㅤ
 
-https://github.com/user-attachments/assets/17e66e3d-f752-4efd-8b95-1362f00e688d
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/fc84a633-506d-4575-9fe8-190d021c33f6.png" width="670" height="670" /></div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [*ata*](https://uta.atabook.org/)ㅤㅤ◞੭ㅤㅤ[*prns.cc*](https://pronouns.cc/@crocbug)ㅤㅤ౨◟ㅤㅤ[*rentry*](https://rentry.co/filmred)ㅤ ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [*ata*](https://uta.atabook.org/)ㅤㅤ˖ ⊹｡˖ㅤㅤ[*prns.cc*](https://pronouns.cc/@crocbug)ㅤㅤ⊹｡⁖ㅤㅤ[*rentry*](https://rentry.co/filmred)ㅤ ㅤ
 ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
