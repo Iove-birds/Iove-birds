@@ -4,15 +4,11 @@
 
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/fc84a633-506d-4575-9fe8-190d021c33f6.png" width="670" height="670" /></div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<div align="center">dnc and ask b4 taking heavy inspo please!</div>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [*ata*](https://uta.atabook.org/)ㅤㅤ˖ ⊹｡˖ㅤㅤ[*prns.cc*](https://pronouns.cc/@crocbug)ㅤㅤ⊹｡⁖ㅤㅤ[*rentry*](https://rentry.co/filmred)ㅤ ㅤ
-ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center">
+ <a href= "https://uta.atabook.org/"> ata</a>ㅤㅤ˖ ⊹｡˖ㅤㅤ<a href= "https://pronouns.cc/@crocbug/">prns.cc</a>ㅤㅤ⊹｡⁖ㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
+</p>
