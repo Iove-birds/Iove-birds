@@ -1,5 +1,5 @@
 ㅤ
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-04-28_020700974.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-04-28_024802983.png" /></div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">dnc and ask before taking heavy inspo please!</div>
