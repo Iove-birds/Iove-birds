@@ -1,9 +1,5 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
-ㅤ
-<div align="center">'` when you feel like getting away, stay with me instead. `'</div>
-
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/testiguess.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-04-28_020700974.png" /></div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">dnc and ask before taking heavy inspo please!</div>
@@ -13,5 +9,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
- <a href= "https://set.atabook.org/"> ata</a>ㅤㅤ˖ ⊹｡˖ㅤㅤ<a href= "https://pronouns.cc/@crocbug/">prns.cc</a>ㅤㅤ⊹｡⁖ㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
+ <a href= "https://set.atabook.org/"> ata</a>ㅤㅤ˖ ⊹｡˖ㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤ⊹｡⁖ㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
 </p>
