@@ -11,3 +11,7 @@
 <p align="center">
  <a href= "https://set.atabook.org/"> ata</a>ㅤㅤ˖ ⊹｡˖ㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤ⊹｡⁖ㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
 </p>
+
+<p align="center">
+ go check out <a href= "https://github.com/otofuchi">my alt</a> for peak content
+</p>
